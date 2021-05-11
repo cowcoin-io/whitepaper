@@ -1,2 +1,2 @@
 
-Cow Coin Official MoooPaper
+Cow Coin Official Whitepaper
